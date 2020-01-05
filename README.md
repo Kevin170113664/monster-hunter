@@ -98,5 +98,7 @@
 
 如果大家有更多有趣的盾斧配装也请告诉我，祝苍蓝星们狩猎愉快。
 
+```
 发在NGA的：https://bbs.nga.cn/read.php?tid=19908430
 发在B站专栏的：https://www.bilibili.com/read/cv4295373
+```
